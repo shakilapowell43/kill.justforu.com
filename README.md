@@ -1,0 +1,2 @@
+# kill.justforu.com
+Domain
